@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Vikas Kumar
+- 👋 Hi, I’m Vikas Kumar (📱 Developer)
 - 👀 I’m interested in 🤔
 - 🌱 I’m currently learning ...........
 - 💞️ I’m looking to collaborate on make you rich💰
